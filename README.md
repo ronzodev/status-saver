@@ -1,4 +1,4 @@
-# ecz-past-papers
+# status saver
 Privacy Policy  
 ----------------
 
